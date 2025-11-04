@@ -14,4 +14,4 @@ Discord Account Support Corporation© — an independent nonprofit providing edu
 
 ## About
 
-Discord Account Support Corporation© provides educational content and guides to help Discord users manage their accounts safely. We are **not affiliated with Discord Inc.**  
+Discord Account Support Corporation© provides educational content and guides to help Discord users manage their accounts safely. We are **not affiliated with Discord Inc.**
